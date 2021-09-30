@@ -8,4 +8,5 @@ After falling in love with the piano at age 4, Tiffany began exploring other asp
 Tiffany has been dancing since the age of 2, starting with ballet and tap. She began exploring other styles such as contemporary, ballet fusion, and Chinese dance at the age of 4. Currently, Tiffany focuses on hip hop, Chinese Traditional, Chinese Contemporary, and Chinese Folk dances. Some of her notable awards include being the 2020 Showstoppers National Dance Competition first overall in the 16-18 solo category. She has also received a scholarship for winning the talent category of Distinguished Young Women with Chinese dance.
 
 You can view some of Tiffany's performance pieces here.
+ 
  -[Tiffany's 2020 Senior Solo First Overall Competition Piece](https://www.youtube.com/watch?v=8n2gRFLShIQ).
