@@ -10,6 +10,6 @@ You can view [Tiffany's 2020 Senior Solo First Overall Competition Piece](https:
 
 As an aspiring graphic designer, Tiffany has completed many visual arts works with mediums ranging from watercolor, to clay, to charcoal. She won a Scholastic Art and Writing Silver Key award in 2018 for a graphic design piece.
 
-![Morphing Mug Design](tiffany/image1.jpg)
+![Morphing Mug Design](image1.jpg)
 
 ![Sunset Sticker Outline](tiffany/image2.jpg)
