@@ -9,4 +9,4 @@ Tiffany has been dancing since the age of 2, starting with ballet and tap. She b
 You can view [Tiffany's 2020 Senior Solo First Overall Competition Piece](https://www.youtube.com/watch?v=8n2gRFLShIQ).
 
 As an aspiring graphic designer, Tiffany has completed many visual arts works with mediums ranging from watercolor, to clay, to charcoal. She won a Scholastic Art and Writing Silver Key award in 2018 for a graphic design piece.
-![Morphing mug design]
+
