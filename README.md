@@ -12,4 +12,4 @@ As an aspiring graphic designer, Tiffany has completed many visual arts works wi
 
 ![Morphing Mug Design](image1.jpg)
 
-![Sunset Sticker Outline](tiffany/image2.jpg)
+![Sunset Sticker Outline](image2.jpg)
