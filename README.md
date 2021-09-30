@@ -7,4 +7,4 @@ As an aspiring graphic designer, Tiffany has completed many visual arts works wi
 
 After falling in love with the piano at age 4, Tiffany began exploring other aspects of music. She began playing the cello at age 7 and holds notable titles in the Music Teachers Association of California, such as Branch and State honors recognition, and was named a mastery panelist in 2020. She currently has a cello teaching certification. In total, Tiffany plays 11 instruments: cello, piano, guitar, bass guitar, ukulele, triangle, harmonica, drums, cajon, clarinet, and recorder, with emphasis on cello, piano, and guitar.
 
-You can use the [editor on GitHub](https://github.com/tiffanycycheng/tiffany/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+You can view [Tiffany's 2020 Senior Solo First Overall Competition Piece](https://www.youtube.com/watch?v=8n2gRFLShIQ).
